@@ -2,7 +2,7 @@
 MY first Github project!!!!!!
 
 Yup so atlast finally on GITHUB......
-lets satrt the journey.
+lets start the journey.
 
 Edited on 14-12-2020
 
